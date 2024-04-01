@@ -1,3 +1,6 @@
+<strong>KRYPTRONIX Best Gaming PC in Delhi India.pdf
+</strong>
+
 Why Pick KRYPTRONIX for Your Video Game Requirements?
 
 We at KRYPTRONIX are more than just another supplier of gaming PCs—we're your doorway to an unparalleled gaming experience. Here's why you ought to pick us:
